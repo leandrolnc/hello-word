@@ -1,6 +1,14 @@
 # hello-word
 Repositorio inicial
 
+Segunda 18/08/2018 - Dia cansativo mas super maravilhoso
+Quase não dormimos de ontem para hj, as contrações ficaram frequentes e ritmadas, às 04:30 da manhã fomos para a maternidade.
+Fernanda chegou por volta de 06:00 e as 08:00 meu segundo filho nasceu!!!! Benício :D !!!
+
+Domingo 17/08/2018 - Dia maravilhoso
+Afazeres domésticos, deixei a Michele e o Theo na casa da minha sogra e retornei para casa, consegui adiantar algumas coisas.
+A tarde voltei para buscá-los, sai com o cachorro e brinquei muito com o Theo. A noite a Michele começou a sentir as contrações.
+
 Sábado 16/06/2018 - Dia maravilhoso com passeio à lagoa, tempo agradável (pelo menos pra mim), temperatura de 20C e um pouco de chuva.
 Me chamo Leandro, sou casado e pai de dois meninos, o mais velho de 2 anos e 5 meses e o mais novo está para nascer. Trabalho com desenvolvimento de software a mais de 14 anos, neste momento estou fazendo um curso de React (pela universidade de Hong Kong) e por isso também preciso me familiarizar melhor com o GIT.
 
