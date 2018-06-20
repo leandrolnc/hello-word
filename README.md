@@ -1,11 +1,14 @@
 # hello-word
 Repositorio inicial
 
-Segunda 18/08/2018 - Dia cansativo mas super maravilhoso
+Terça 19/06/2018 - Dia cansativo e maravilhoso rs
+Theo e eu acordamos por volta de 06:50 fomos até a padaria e compramos alguns pães. Theo quase não comeu porque ficou na agonia do cocô, ele fica com medo de fazer cocô e fica segurando o máximo que pode. Perdi um pouco a paciência com ele, não me deixou fazer quase nada, toda vez que eu me afastava ele chorava com medo de evacuar, fomos almoçar umas 16:00 tive que colocar meio supositório e depois disso o menino pela primeira vez fez uso do vaso sanitário ;) Chegamos na maternidade por volta das 18:00 só podemos ficar com a mamae e o irmãoziho até as 20:00. Chegamos em casa o menino comeu um pão pizza e depois um pouco da minha janta rs.
+
+Segunda 18/06/2018 - Dia cansativo mas super maravilhoso
 Quase não dormimos de ontem para hj, as contrações ficaram frequentes e ritmadas, às 04:30 da manhã fomos para a maternidade.
 Fernanda chegou por volta de 06:00 e as 08:00 meu segundo filho nasceu!!!! Benício :D !!!
 
-Domingo 17/08/2018 - Dia maravilhoso
+Domingo 17/06/2018 - Dia maravilhoso
 Afazeres domésticos, deixei a Michele e o Theo na casa da minha sogra e retornei para casa, consegui adiantar algumas coisas.
 A tarde voltei para buscá-los, sai com o cachorro e brinquei muito com o Theo. A noite a Michele começou a sentir as contrações.
 
