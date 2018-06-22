@@ -1,8 +1,11 @@
 # hello-word
 Repositorio inicial
 
+Quinta 21/06/2018 - Dia cansativo e maravilhoso
+Todos nós (Michele, Theo, Benicio e eu) levantamos da cama por volta de 08:00. Por volta das 18:00 fui até o trabalho buscar o carrinho de bebe e quando voltei as 20:00 Theo havia caido e machucado o nariz (saiu apenas um pouco de sangue) justo na primeira vez que deixei os três sozinhos...Agora são 00:44 do dia 22 estou com muito sono, pernas doendo mas tenho que tentar estudar. 00:50 Theo está acordando acho que vou ficar com ele...
+
 Terça 19/06/2018 - Dia cansativo e maravilhoso rs
-Theo e eu acordamos por volta de 06:50 fomos até a padaria e compramos alguns pães. Theo quase não comeu porque ficou na agonia do cocô, ele fica com medo de fazer cocô e fica segurando o máximo que pode. Perdi um pouco a paciência com ele, não me deixou fazer quase nada, toda vez que eu me afastava ele chorava com medo de evacuar, fomos almoçar umas 16:00 tive que colocar meio supositório e depois disso o menino pela primeira vez fez uso do vaso sanitário ;) Chegamos na maternidade por volta das 18:00 só podemos ficar com a mamae e o irmãoziho até as 20:00. Chegamos em casa o menino comeu um pão pizza e depois um pouco da minha janta rs.
+Theo e eu acordamos por volta de 06:50 fomos até a padaria e compramos alguns pães. Theo quase não comeu porque ficou na agonia do cocô, ele fica com medo de fazer cocô e fica segurando o máximo que pode. Perdi um pouco a paciência com ele, não me deixou fazer quase nada, toda vez que eu me afastava ele chorava com medo de evacuar, fomos almoçar umas 16:00 tive que colocar meio supositório e depois disso o menino pela primeira vez fez uso do vaso sanitário ;) Chegamos na maternidade por volta das 18:00 só podemos ficar com a mamae e o irmãozinho até as 20:00. Chegamos em casa o menino comeu um pão pizza e depois um pouco da minha janta rs.
 
 Segunda 18/06/2018 - Dia cansativo mas super maravilhoso
 Quase não dormimos de ontem para hj, as contrações ficaram frequentes e ritmadas, às 04:30 da manhã fomos para a maternidade.
