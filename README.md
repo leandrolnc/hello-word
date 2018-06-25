@@ -1,6 +1,10 @@
 # hello-word
 Repositorio inicial
 
+Sabado e Domingo 23e24/06/2018 - Fds maravilhoso com a família (dia quente para outono, 30c marcou o quarto)
+Acordamos no sábado e a Michele lembrou que precisávamos fazer o teste do pezinho no Benício (ela achava que seriam apenas 5 dias depois do nascimento) fui até a clinica da família do Sampaio e estava fechada, ligamos para outras clinicas da família e não conseguimos, por fim fomos até a clínica do Méier e não conseguimos fazer o teste do pezinho porque esquecemos a certidão de nascimento do Ben. No domingo passamos o dia em casa cuidando dos meninos e da casa. Consegui estudar um pouco (depois das 23:00). Hj Théo tomou banho sem "brigar" duas vezes :D um pouco antes do Ben nascer ele estava brigando para não tomar banho, acho que já está voltando ao comportamento normal que sempre foi gostar do banho, que na maioria das vezes é um momento de diversão rs.
+
+
 Quinta 21/06/2018 - Dia cansativo e maravilhoso
 Todos nós (Michele, Theo, Benicio e eu) levantamos da cama por volta de 08:00. Por volta das 18:00 fui até o trabalho buscar o carrinho de bebe e quando voltei as 20:00 Theo havia caido e machucado o nariz (saiu apenas um pouco de sangue) justo na primeira vez que deixei os três sozinhos...Agora são 00:44 do dia 22 estou com muito sono, pernas doendo mas tenho que tentar estudar. 00:50 Theo está acordando acho que vou ficar com ele...
 
