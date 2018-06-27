@@ -1,6 +1,9 @@
 # hello-word
 Repositorio inicial
 
+Terça 26/06/ - Dia maravilhoso em casa com a família
+Hoje levei Theo para cortar o cabelo (fazer pic-pic como ele diz rs) e depois do almoço ele voltou com a "agonia do cocô" Michele tentou ajudar mas o menino acabou dormindo, só foi conseguir fazer por volta das 21:00 :(. Hoje foi mais um dia de Outono com temperatura de verão... muito quente, a suite novamente com temperatura acima de 30c. 
+
 Sabado e Domingo 23e24/06/2018 - Fds maravilhoso com a família (dia quente para outono, 30c marcou o quarto)
 Acordamos no sábado e a Michele lembrou que precisávamos fazer o teste do pezinho no Benício (ela achava que seriam apenas 5 dias depois do nascimento) fui até a clinica da família do Sampaio e estava fechada, ligamos para outras clinicas da família e não conseguimos, por fim fomos até a clínica do Méier e não conseguimos fazer o teste do pezinho porque esquecemos a certidão de nascimento do Ben. No domingo passamos o dia em casa cuidando dos meninos e da casa. Consegui estudar um pouco (depois das 23:00). Hj Théo tomou banho sem "brigar" duas vezes :D um pouco antes do Ben nascer ele estava brigando para não tomar banho, acho que já está voltando ao comportamento normal que sempre foi gostar do banho, que na maioria das vezes é um momento de diversão rs.
 
