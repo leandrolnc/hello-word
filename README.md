@@ -1,6 +1,17 @@
 # hello-word
 Repositorio inicial
 
+Terça 17/07/2018 - Dia maravilhoso com a família
+Ainda estou fazendo o curso, estou indo bem apesar do sono rs. Devo terminar essa semana. 
+Hoje foi mais um dia quente de inverno mas fiquei o tempo todo com os meninos e principalmente com o Théo, dia 18 volto ao trabalho e já estou sentindo
+muito por isso, de qualquer forma também me sinto grato por passar esses 30 dias com minha família e também pela Michele poder ficar em casa com os meninos.
+:D 
+
+Quinta 12/07/2018 - Dia maravilhoso com a família
+Um tempinho sem escrever nada... estava meio atrasado com o curso de React, tive que correr um pouco, mesmo colocando o Theo pra dormir cedo as vezes ele começava a despertar por volta das 23:00 e depois disso eu não conseguia retomar rs. 
+Até que esses dias têm sido amenos, quarto marcando 23C dias nublados e ventos frescos (ótimo).
+Theo está lidando muito bem com o irmãozinho, tenho estado junto do Theo o tempo todo, outro dia fiquei 3 horas com ele no play, semana que vem volto a trabalhar e vou sentir muito principalmente esses momentos.
+
 Sexta 29/06/2018 - Dia maravilhoso com a família
 Hoje mais um dia quente de inverno, tive até que abaixar o toldo, coisa que não costumo fazer (por medo de vendaval). Theo me ajudou a lavar a varanda, caiu bateu a cabeça (nada sério). Benício é muito bonzinho fica quietinho na caminha, dorme bastante, apesar da Michele ter reclamado que ontem ele não dormiu bem, ficou resmungando, talvez cólicas. São 23:00 vou tentar estudar um pouco.
 
